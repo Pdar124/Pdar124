@@ -1,5 +1,5 @@
 ## Introduction 
-* 안녕하세요.
+* 안녕하세요. :smile:
 
 ## Career
 - 영남대학교 컴퓨터학부 재학
